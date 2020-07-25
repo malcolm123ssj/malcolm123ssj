@@ -1,1 +1,1 @@
-<img src="https://ibb.co/0Vx7scy" />
+<img src="https://i.ibb.co/5xP0K6h/Green-School-Science-Club-Logo.png" />
